@@ -6,4 +6,5 @@
 - hpierce370@gmail.com
 - 774-258-1453
 - www.linkedin.com/in/HarrisonPierce7
+- instagram.com/pierceprofessional
 
