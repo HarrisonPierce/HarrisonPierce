@@ -5,5 +5,4 @@
 - 📫 How to reach me; 
 - hpierce370@gmail.com
 - www.linkedin.com/in/HarrisonPierce7
-- instagram.com/pierceprofessional
-
+- www.instagram.com/pierceprofessional
