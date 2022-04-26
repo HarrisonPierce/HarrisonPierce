@@ -4,7 +4,6 @@
 - 💞️ I’m looking to collaborate on a project in the defi space that has its goals set high
 - 📫 How to reach me; 
 - hpierce370@gmail.com
-- 774-258-1453
 - www.linkedin.com/in/HarrisonPierce7
 - instagram.com/pierceprofessional
 
