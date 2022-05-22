@@ -1,4 +1,4 @@
-- Big computers guy. Build my first PC in 8th grade, did some hacking in high school along with some gaming video production. Studied computer science in college and went on to work in software marketing. Been interested in cypto since the early days of Ethereum ~2015-16, started investing in 2018, decided it was time to pursue a career in it by 2021.
+- Big computers guy. Build my first PC in 8th grade, did some hacking in high school along with some gaming video production. Studied computer science in college and went on to work in software marketing. Been interested in cypto since the early days of Ethereum ~2015-16, started investing in 2018, decided it was time to pursue a career in blockchain technology around 2021.
 - 💞️ I’m looking to collaborate on a project in the defi space with big ambitions
 - 📫 How to reach me; 
 - hpierce370@gmail.com
