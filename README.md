@@ -2,5 +2,6 @@
 - 💞️ I’m looking to collaborate on a project in the defi space with big ambitions
 - 📫 How to reach me; 
 - hpierce370@gmail.com
+- harrisonpierce.info
 - www.linkedin.com/in/HarrisonPierce7
 - www.instagram.com/pierceprofessional
