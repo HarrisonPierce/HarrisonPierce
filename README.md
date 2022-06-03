@@ -1,4 +1,4 @@
-- Big computers guy. Build my first PC in 8th grade, did some hacking in high school along with some gaming video production. Studied computer science in college and went on to work in software marketing. Been interested in cypto since the early days of Ethereum ~2015-16, started investing in 2018, decided it was time to pursue a career in blockchain technology around 2021.
+- Built my first PC in 8th grade, did some hacking in high school along with some gaming video production. Studied computer science in college and continued on to work in software marketing after graduation. Blockchain technology first peaked my interest in 2015-16 when Ethereum first started gaining traction. Later, I started crypto investing in about 2018. Since then I have engaged in numerous personal projects and experiments including, Helium mining, Solidity development, and working with Avax nodes to name a few.
 - 💞️ I’m looking to collaborate on a project in the defi space with big ambitions
 - 📫 How to reach me; 
 - hpierce370@gmail.com
